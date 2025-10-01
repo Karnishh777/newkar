@@ -1,3 +1,0 @@
-# newkar
-safdfasfa
-asdfasdfas
